@@ -15,4 +15,6 @@ Spent 3 semesters on the Dean’s list.
 •	Sociable
 •	Member of club tennis at App State University
 
+<img src="https://today.appstate.edu/_images/_posts/2022/10/enrollment/drone-fall-scene.jpg">
+
 
